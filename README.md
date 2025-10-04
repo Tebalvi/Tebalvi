@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! <br>I am a Business Intelligence & Analytics student at my 3º year in the university of Valencia.<br><br>I am willing to learn everyday so that i can improve my skills as a future data analyst<br>In my profile you will find the links to my social media networks <br>Contact me<br>
+Hi! <br>I am a Business Intelligence & Analytics student at my 4º year in the university of Valencia.<br><br>I am willing to learn everyday so that i can improve my skills as a future data analyst<br>In my profile you will find the links to my social media networks <br>Contact me<br>
 
 
 ## 🌐 Socials:
